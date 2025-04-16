@@ -16,12 +16,6 @@
 
 ---
 
-### 🌍 Find Me Online
-- 🐦 Twitter: [@plot_armoured](https://x.com/Plot_Armoured)
-- 💼 LinkedIn: [linkedin.com/in/louischidebe](https://www.linkedin.com/in/chukwuemeka-chidebe-85aaa1235/)
-
----
-
 ### 😄 Pronouns
 he/him
 
